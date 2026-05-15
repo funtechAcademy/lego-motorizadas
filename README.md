@@ -1,2 +1,0 @@
-# lego-motorizadas
-lego-motorizadas
